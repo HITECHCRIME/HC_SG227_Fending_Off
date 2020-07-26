@@ -23,14 +23,14 @@ Description.
 
 ```
 for the gone people i was fond of
-fallen ode to the feeble karma as they snap close                              /// (cold)
-way too close am i blood, pushed too far i made it far                         /// so i made it far
+fallen ode to the feeble karma as they snap close             /// (cold)
+way too close am i blood, pushed too far i made it far        /// so i made it far
 all attachments felt so good from afar 
 
 yet they crashed my spirit's wards
-all heirs to their thraws (cuz)                                                /// throne / all them heirs to their own thraws cuz
-fig. laments imagination                                                       /// figment's
-paying price for the cause                                                     /// allegiance
+all heirs to their thraws (cuz)                               /// throne / all them heirs to their own thraws cuz
+fig. laments imagination                                      /// figment's
+paying price for the cause                                    /// allegiance
 
 groups or packs and tribes they think they right
 in their mind, got my own thoughts, never satisfied

@@ -46,8 +46,8 @@ fend off x2 (whisper)
 for the gone people i was fond of
 fallen ode to the feeble karma as they snap close
 
-feeling clots in my blood
-search through collective thaws
+feeling clots in my blood so i search search through collective thaws
+reverb brawls
 
 x
 x

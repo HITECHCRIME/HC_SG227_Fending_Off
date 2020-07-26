@@ -85,3 +85,22 @@ fend off x2 (whisper)
 ## Short Cinematic Film
 
 ## Miscellaneous Notes
+
+"Of course, yet this is the nature of families. I've seen it countless times, on countless worlds. People arrive so we celebrate and people leave us so we grieve. We do what we can in the time inbetween but the cycle is always there. Noone escapes it, not even me." - Enoch
+
+for the gone people i was fond of fallen ode 
+to the feeble karma as they snap close          
+way too close am i blood, pushed too far i made it far  
+all attachments felt so good from afar 
+
+yet they crashed my spirit's wards all heirs to their thraws cuz                             
+fig laments imagination paying price for the cause                                    
+groups or packs and tribes they think they right
+in their mind, got my own thoughts, never satisfied
+
+(all i can is)
+fend off x6
+fend off x2 (whisper)
+
+for the gone people i was fond of fallen ode
+to the feeble karma as they snap close

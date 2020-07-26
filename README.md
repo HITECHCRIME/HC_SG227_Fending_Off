@@ -47,7 +47,7 @@ for the gone people i was fond of
 fallen ode to the feeble karma as they snap close
 
 feeling clots in my blood
-searching through collective thaws
+search through collective thaws
 
 x
 x

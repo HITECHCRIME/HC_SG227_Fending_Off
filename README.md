@@ -23,7 +23,11 @@ Description.
 
 ```
 
-"
+"of course, yet this is the nature of families
+i've seen it countless times, on countless worlds
+people arrive so we celebrate and people leave us so we grieve
+we do what we can in the time inbetween but the cycle is always there
+noone escapes it, not even me"
 
 for the gone people i was fond of
 fallen ode to the feeble karma as they snap close             /// (cold)
